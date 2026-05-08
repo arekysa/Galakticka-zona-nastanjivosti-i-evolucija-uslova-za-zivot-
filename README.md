@@ -1,2 +1,2 @@
-# Galakticka-zona-nastanjivosti-i-evolucija-uslova-za-zivot-
+# Galakticka nastanjivost i procena broja terestrijalnih planeta u analozima Mlecnog puta
 bice dodato kasnije
